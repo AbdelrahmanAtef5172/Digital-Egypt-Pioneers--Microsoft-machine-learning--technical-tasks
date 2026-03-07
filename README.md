@@ -1,1 +1,0 @@
-# Digital-Egypt-Pioneers--Microsoft-machine-learning--technical-tasks
